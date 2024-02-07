@@ -2,7 +2,7 @@ Privacy Policy
 
 
 Introduction
-Our privacy policy will help you understand what information we collect at Color Therapy how Color Therapy uses it, and what choices you have. Color Therapy built the Color Therapy app as a free app. This SERVICE is provided by FanSy at no cost and is intended for use as is. If you choose to use our Service, then you agree to the collection and use of information in relation to this policy. The Personal Information that we collect is used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.
+Our privacy policy will help you understand what information we collect at Color Therapy how Color Therapy uses it, and what choices you have. Color Therapy built the Color Therapy app as a free app. This SERVICE is provided by Color Therapy at no cost and is intended for use as is. If you choose to use our Service, then you agree to the collection and use of information in relation to this policy. The Personal Information that we collect is used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which are accessible on our website unless otherwise defined in this Privacy Policy.
 
 Information Collection and Use
